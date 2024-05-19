@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Fakecat69
+- 👀 I’m actually not a coder, I draw arts.
+- 🌱 O.o
+- 📫 Ask me if you want contacting.
+- 😄 Pronouns: Any
+- ⚡ Fun fact: I'm stupid.
+- 💀 LMAO
